@@ -1,5 +1,5 @@
 # 💫 About Me:
-junior student at SRM Institute of Science and Technology (SRMIST)
+Senior student at SRM Institute of Science and Technology (SRMIST)
 
 
 ## 🌐 Socials:
